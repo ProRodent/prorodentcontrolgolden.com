@@ -1,1 +1,0 @@
-# prorodentcontrolgolden.com
